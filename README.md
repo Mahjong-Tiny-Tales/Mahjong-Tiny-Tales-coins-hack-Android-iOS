@@ -1,0 +1,1 @@
+# Mahjong-Tiny-Tales-coins-hack-Android-iOS
